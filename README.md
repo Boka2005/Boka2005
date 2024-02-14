@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Boka2005
+- 👀 I’m interested in cheerleading 
+- 🌱 I’m currently learning coding 
+- 💞️ I’m looking to collaborate on future coding projects
+- 😄 Pronouns: she/her/hers
